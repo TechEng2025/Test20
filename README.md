@@ -1,3 +1,6 @@
+
+https://us06web.zoom.us/rest/webinar/registrant/WN_Hv3Wo_vOQ2qVtUiomdkDTA/info?tk=y5pyR2RrTqu2WRuaF1ux4lDaSFd6fkuFyNOcrhLEKFnpu0DCqMCrrbw.IaJ_j-BdhMdO4MTi&ac=approved&timezone_id=Asia/Calcutta#/registration
+
 https://us06web.zoom.us/w/89298642475?tk=HaND16qbh_IOXychreq_T-hfTXlcCbJpIPbZIYxsyP0.DQkAAAAUyp0mKxZLMGtjWUpaX1RyV2xaZUxfWjhxTU9nAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA&uuid=WN_WvHMrjILTc-G6i4HAe_UAA
 
 
