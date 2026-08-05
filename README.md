@@ -1,3 +1,5 @@
+https://us06web.zoom.us/webinar/register/5817857629130/WN_-1Lo-JqCRBGPmHqtpSNIwA#/registration
+https://us06web.zoom.us/webinar/register/5817857629130/WN_-1Lo-JqCRBGPmHqtpSNIwA#/registration
 
 https://us06web.zoom.us/w/82260231356?tk=p993Es67yr1m0rgYPer5YxwG1_axSgkQbKAKMtgTA50.DQkAAAATJxeEvBZVSWVuaHNCNFRkaTRhN3dvUW96WWZRAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA&uuid=WN_SzZno_R0SUm5A24afDfT8Q
 
