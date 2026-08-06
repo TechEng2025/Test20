@@ -1,3 +1,8 @@
+
+https://zoom.us/j/91522051411
+
+
+
 https://us06web.zoom.us/webinar/register/5817857629130/WN_-1Lo-JqCRBGPmHqtpSNIwA#/registration
 https://us06web.zoom.us/webinar/register/5817857629130/WN_-1Lo-JqCRBGPmHqtpSNIwA#/registration
 
